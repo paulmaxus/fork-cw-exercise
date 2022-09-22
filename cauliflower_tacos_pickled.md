@@ -10,7 +10,7 @@ Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 - Roast cauliflower
 - Pickled chilis and vegetables
 	- Vinegar
-	- Sugar
+	- No sugar
 - Caramelized red onions
 - Guacamole
 - Yogurt

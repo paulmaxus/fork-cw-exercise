@@ -13,6 +13,7 @@ Ingredients:
 Steps:
 1. Drain tofu
 2. Fry the onions and garlic
-3. Cut tofu and fry it as well
-4. Assemble tacos
-5. Enjoy
+3. Add in the canned tomatoes
+4. Cut tofu and add it as well
+5. Assemble tacos
+6. Enjoy
